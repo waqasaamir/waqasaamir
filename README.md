@@ -4,6 +4,6 @@ Senior Software Engineer with 5+ years of experience designing scalable web plat
 
 👀 Interested in Software Development, Forward Deployed Engineer (FDE), and AI Engineer roles.
 
-💞️ Open to remote opportunities. Willing to relocate to European, Western regions for onsite jobs.
+💞️ Open to remote opportunities. Willing to relocate to European, Western and Middle East regions for onsite jobs.
 
 📫 How to reach me? -> waqasaamir515@gmail.com
